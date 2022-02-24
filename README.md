@@ -1,2 +1,2 @@
 # Tes_HarisSubhanMaulana
-Tes Keahlian PT BATAR GURU TEKNOLOGI
+Tes Keahlian PT BATARA GURU TEKNOLOGI
